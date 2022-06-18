@@ -1,3 +1,3 @@
 # words
-## Official owner of **www.adharsh.com**
+## Official owner of **www.adharshwordsgps.com**
  
